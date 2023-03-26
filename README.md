@@ -1,1 +1,1 @@
-# MBTI_jh
+# MBTI
