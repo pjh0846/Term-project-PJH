@@ -1,1 +1,1 @@
-# Term-project-PJH
+# MBTI_jh
